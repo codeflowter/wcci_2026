@@ -79,17 +79,17 @@ Email: houshyar.asadi@deakin.edu.au
 
 Important dates
 
-31 January: Paper submission deadline (23:59, anywhere on Earth, i.e. UTC-12) – no extension will be given.
+31 January 2026 - Paper submission deadline (23:59, anywhere on Earth, i.e. UTC-12) – no extension will be given.
 
-15 March: Paper acceptance notification
+15 March 2026 - Paper acceptance notification
 
-15 April: Camera-ready papers
+15 April 2026 - Camera-ready papers
 
-21 June: Tutorials
+21 June 2026 - Tutorials
 
-24 June: Industry Day
+24 June 2026 - Industry Day
 
-22- 26 June: Conference
+22-26 June 2026 - Conference
 
 
 
