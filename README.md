@@ -57,6 +57,9 @@ The special session integrates rising topics such as deep learning and generativ
 
 We aim to attract a large number of high quality submissions from research communities with a variety of research backgrounds to stimulate discussions in the proposed and aforementioned relevant conference themes, as well as identify new directions and solutions with the attempt to address research gaps and diverse real-world challenges.
 
+Submission Guidelines
+
+https://attend.ieee.org/wcci-2026/information-for-authors/
 
 Organizers
 
